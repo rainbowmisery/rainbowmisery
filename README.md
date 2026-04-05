@@ -1,2 +1,1 @@
-<img width="582" height="981" alt="1000002042" src="https://github.com/user-attachments/assets/fed9ffe0-ab1f-49fc-9fa2-15ffbbba5c17" />
-meowxhmmm whaj do i put here
+![1000002985](https://github.com/user-attachments/assets/6f10e9dc-b69e-4c39-a54d-82185492e45d) wip ill rrmake this ok
