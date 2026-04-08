@@ -1,1 +1,1 @@
- <img width="199" height="956" alt="1000003069" src="https://github.com/user-attachments/assets/df231ff0-940c-45ea-a614-51a2a4acc9c6" /> hwo do i put my socials here helo
+<img width="400" height="736" alt="1000003086" src="https://github.com/user-attachments/assets/3cfca4a5-9f9d-43cc-8f3a-71206ed974b6" />
