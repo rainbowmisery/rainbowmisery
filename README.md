@@ -1,1 +1,4 @@
-<img width="400" height="436" alt="1000003086" src="https://github.com/user-attachments/assets/3cfca4a5-9f9d-43cc-8f3a-71206ed974b6" />
+<p align="center" width="100%">
+    <img width="205" height="255" alt="1000003618" src="https://github.com/user-attachments/assets/b36ad39b-ab35-4eee-be26-aaf87f6a4885" />
+</p>
+meiow
