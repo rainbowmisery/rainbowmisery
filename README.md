@@ -1,1 +1,3 @@
-<img width="300" height="180" alt="1000004523" src="https://github.com/user-attachments/assets/087b7352-14fe-46ac-ace2-94fab1236634" />
+<img width="960" height="960" alt="1000005106" src="https://github.com/user-attachments/assets/ae104d97-03f9-48ba-b3ba-fe92f3e0c18a" /> mi [strawpage](https://rainbowmisery.straw.page) and [ata](lunaticeyes.atabook.org)
+
+
